@@ -6,3 +6,4 @@
 
 https://docs.google.com/spreadsheets/d/1wnjb7zrQ2fS9ZHZCHerYJqVHcSX0aV1hsjci-UbZ32U/edit?usp=sharing
 
+Вопросы, критика и предложения приветствуются!
